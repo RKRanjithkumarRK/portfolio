@@ -42,7 +42,7 @@ I’m passionate about transforming raw data into meaningful insights and buildi
 ---
 
 ## 📄 Resume
-Download my resume here: [Resume](C:\Users\ranji\OneDrive\Documents\portfolio\Ranjithkumar_Ramesh_Resume.pdf)
+Download my resume here: [Resume](https://drive.google.com/file/d/152k9v0fkIsz_77PkJ_hFAkJaS8hPiFAh/view?usp=sharing)
 
 ---
 
